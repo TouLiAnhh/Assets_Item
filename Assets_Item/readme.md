@@ -42,3 +42,5 @@
 - ziptie
 
 For more images, see [this thread](https://forum.cfx.re/t/inventory-icons-pack-for-rp-server-hq-draw-24k-cloth-l-1400-objects/5203350) and get a **10%** discount when using creator code `ox10`.
+"# nqtcity"  
+"# nqtcity"  
